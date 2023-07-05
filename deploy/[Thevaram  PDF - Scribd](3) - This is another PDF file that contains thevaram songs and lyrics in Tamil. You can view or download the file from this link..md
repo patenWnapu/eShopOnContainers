@@ -1,0 +1,32 @@
+
+ 
+# Thevaram: The Divine Hymns of Shiva in Tamil
+ 
+Thevaram is a collection of devotional poems sung by three Tamil saints, Sambandar, Appar and Sundarar, in praise of Lord Shiva. These poems are considered to be one of the most important sources of Tamil bhakti literature and culture. They express the intense love and devotion of the saints towards Shiva, who is seen as the supreme reality, the compassionate protector and the liberator of souls.
+ 
+The word Thevaram means "garland of songs" or "divine songs". It is derived from the Tamil words "the" (god) and "varam" (song). Thevaram is also the name of the musical genre in which these poems are sung. Thevaram songs are composed in a unique musical style that predates most Indian classical music systems. They are based on ancient Tamil scales and rhythms, and are sung with simple instruments such as cymbals, drums and flutes.
+ 
+**Download ✯ [https://t.co/kSrqV6cdWo](https://t.co/kSrqV6cdWo)**
+
+
+ 
+Thevaram songs are classified into seven volumes, called Tirumurais. The first three Tirumurais contain the songs of Sambandar, the fourth to sixth Tirumurais contain the songs of Appar, and the seventh Tirumurai contains the songs of Sundarar. The eighth Tirumurai is a compilation of various other songs by different authors. The ninth Tirumurai is the Tiruvasagam, a collection of poems by Manikkavasagar, another Tamil saint. The tenth to twelfth Tirumurais are also compilations of various other works by different authors.
+ 
+Thevaram songs are rich in poetic imagery, symbolism and metaphors. They describe the various aspects and forms of Shiva, his attributes, his actions, his abodes and his devotees. They also narrate the personal experiences and stories of the saints, their struggles, their miracles and their bliss. They convey a profound sense of gratitude, surrender and joy towards Shiva.
+ 
+Thevaram songs are not only meant to be sung, but also to be understood and meditated upon. They reveal the essence of Shaivism, the philosophy and practice of worshipping Shiva as the supreme reality. They teach the seekers how to attain liberation from the cycle of birth and death by realizing their true identity as Shiva himself.
+ 
+Thevaram songs are still sung today by devotees in temples, festivals and homes. They are also studied by scholars and enthusiasts as a valuable source of Tamil language, literature, history, culture and spirituality. They are considered to be a treasure of Tamil heritage and a gift to humanity.
+ 
+thevaram lyrics and meaning in tamil pdf download,  thevaram songs with explanation in tamil pdf download,  thevaram thirumurai with commentary in tamil pdf download,  thevaram padalgal with translation in tamil pdf download,  thevaram hymns with interpretation in tamil pdf download,  thevaram saivam with analysis in tamil pdf download,  thevaram book with notes in tamil pdf download,  thevaram collection with glossary in tamil pdf download,  thevaram ebook with definition in tamil pdf download,  thevaram free download with meaning in tamil pdf format,  thevaram online with meaning in tamil pdf file,  thevaram read with meaning in tamil pdf document,  thevaram learn with meaning in tamil pdf ebook,  thevaram study with meaning in tamil pdf book,  thevaram teach with meaning in tamil pdf guide,  thevaram audio with meaning in tamil pdf mp3,  thevaram video with meaning in tamil pdf mp4,  thevaram music with meaning in tamil pdf song,  thevaram podcast with meaning in tamil pdf episode,  thevaram youtube with meaning in tamil pdf channel,  thevaram app with meaning in tamil pdf download for android,  thevaram software with meaning in tamil pdf download for pc,  thevaram website with meaning in tamil pdf download for free,  thevaram blog with meaning in tamil pdf download for beginners,  thevaram course with meaning in tamil pdf download for learners,  thevaram tutorial with meaning in tamil pdf download for students,  thevaram lesson with meaning in tamil pdf download for teachers,  thevaram quiz with meaning in tamil pdf download for test takers,  thevaram exam with meaning in tamil pdf download for examiners,  thevaram certificate with meaning in tamil pdf download for achievers,  thevaram project with meaning in tamil pdf download for researchers,  thevaram report with meaning in tamil pdf download for writers,  thevaram review with meaning in tamil pdf download for readers,  thevaram summary with meaning in tamil pdf download for skimmers,  thevaram abstract with meaning in tamil pdf download for scholars,  thevaram introduction with meaning in tamil pdf download for beginners,  thevaram conclusion with meaning in tamil pdf download for experts,  thevaram bibliography with meaning in tamil pdf download for references,  thevaram index with meaning in tamil pdf download for navigation,  thevaram appendix with meaning in tamil pdf download for additional information,  thevaram history with meaning in tamil pdf download for background knowledge,  thevaram culture with meaning in tamil pdf download for cultural awareness,  thevaram religion with meaning in tamil pdf download for spiritual insight,  thevaram philosophy with meaning in tamil pdf download for intellectual curiosity,  thevaram art with meaning in tamil pdf download for aesthetic appreciation,  thevaram literature with meaning in tamil pdf download for literary enjoyment,  thevaram poetry with meaning in tamil pdf download for poetic expression,  thevaram drama with meaning in tamil pdf download for theatrical performance,  thevaram dance with meaning in tamil pdf download for rhythmic movement
+ 
+If you want to learn more about Thevaram songs and their meanings, you can download pdf files of Thevaram lyrics in Tamil from various websites. You can also listen to Thevaram songs online or offline from various sources. You can also watch videos of Thevaram singers and learn how to sing Thevaram yourself.
+ 
+Here are some links to download Thevaram lyrics in Tamil pdf files:
+ 
+- [Thevaram in Tamil | Thevaram Lyrics in Tamil](https://isha.sadhguru.org/mahashivratri/ta/thevaram-in-tamil/) [^1^]
+- [Thevaram Tamil Lyrics | panniru thirumurai Lyrics in Tamil](https://thevaramthiruvasagam.com/thevaram_tamil_lyrics.html) [^2^]
+- [6 Thevaram Songs in Tamil -Thodudaiya Seviyan,Pitha Pirai ... - Sadhguru](https://isha.sadhguru.org/mahashivratri/thevaram/) [^3^]
+
+ 8cf37b1e13
+ 
